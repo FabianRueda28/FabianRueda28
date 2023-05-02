@@ -6,4 +6,3 @@ Soy ingeniero de datos, he realizado 3 proyectos que puedes pasar a ver. Estoy m
 
 
 
-
